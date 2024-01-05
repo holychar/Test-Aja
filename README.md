@@ -1,0 +1,1 @@
+Ini hanya sebuah repository untuk tugas sekolah, Terimakasih.
